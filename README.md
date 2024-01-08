@@ -1,4 +1,4 @@
-##Hi there I am Shubhangi Kande👋
+##Hi there, I am Shubhangi Kande👋
 
 
 
